@@ -33,8 +33,7 @@
 
  ##### people who self-diagnose mental illnesses,
 
- ##### forsaken fans,
-###### (sorry, i can't take this game seriously because of its fandom...)
+ ##### doublefedora fans...💀
   
  ##### people with strange tendencies... BRO, IF YOU "LOVE" KIDS OR ANIMALS, I'LL THROW A NUKE AT U.  
 
