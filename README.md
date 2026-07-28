@@ -84,6 +84,8 @@
   The prowler (film 1981)
 
   Wolfenstein (game 2009)
+
+  resident evil (film 2002)
   
   My bloody valentine (film 2009)
 
