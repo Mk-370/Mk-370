@@ -90,7 +90,7 @@
   
   My bloody valentine (film 2009)
 
-  COD:MW, COD:MW2, COD:MW2R, COD:MW3 (Call of Duty: Modern Warfare)
+  COD:MW, COD:MW2, COD:MW2CR, COD:MW3 (Call of Duty: Modern Warfare)
 
   Metro 2033, 34, 35 (a trilogy of books by Dmitry Glukhovsky)
 
@@ -105,7 +105,7 @@
 <div id="header" align="center">
   
 #### secondary fandoms, i'm not a full member of them:
-###### (i don't remember the exact lore and/or don't know all characters, but i know something about the basic idea of the game/smth else)
+###### (i don't remember the exact lore/all characters, but i know something about the game/smth else)
 
 
 <div id="header" align="left">
