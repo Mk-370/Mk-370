@@ -90,7 +90,7 @@
   
   My bloody valentine (film 2009)
 
-  COD:MW, COD:MW2, COD:MW2CR, COD:MW3 (Call of Duty: Modern Warfare)
+  COD:MW, COD:MWR, COD:MW2, COD:MW2CR, COD:MW3 (Call of Duty: Modern Warfare)
 
   Metro 2033, 34, 35 (a trilogy of books by Dmitry Glukhovsky)
 
