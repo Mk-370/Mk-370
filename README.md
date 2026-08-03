@@ -34,6 +34,8 @@
  ##### people who self-diagnose mental illnesses,
 
  ##### doublefedora fans...💀
+
+ ##### racists, homophobes and other idiots like these,
   
  ##### people with strange tendencies... BRO, IF YOU "LOVE" KIDS OR ANIMALS, I'LL THROW A NUKE AT U.  
 
