@@ -82,8 +82,6 @@
 
   The prowler (film 1981)
 
-  Wolfenstein (game 2009)
-
   resident evil (film 2002)
 
   AvP (Aliens vs. Predator, game 2010)
