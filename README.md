@@ -6,10 +6,14 @@
 <div id="header" align="center">
   <img width="128" height="128" alt="catjardshock" src="https://github.com/user-attachments/assets/6c0291d9-1e6f-4211-992a-1772d360dd4f" />
 
-<h3> <div id="header" align="center">
+<h2> <div id="header" align="center">
   hello and welcome to my profile!
-</h3>
+</h2>
 
+<div id="header" align="center">
+
+  ###### i'm not some kind of problematic person or something. if any of my fandoms are associated with problematic people, i don't support them.
+  ###### (sorry, i'm getting paranoid, and it seems to me that i might be canceled, classified as problematic, or something else, because as far as i know, the Eng community can be too aggressive towards people if they consider someone problematic🥀)
 
 <h2>
 <div id="header" align="center">
