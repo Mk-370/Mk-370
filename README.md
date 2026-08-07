@@ -15,6 +15,9 @@
   ###### i'm not some kind of problematic person or something. if any of my fandoms are associated with problematic people, i don't support them.
   ###### (sorry, i'm getting paranoid, and it seems to me that i might be canceled, classified as problematic, or something else, because as far as i know, the Eng community can be too aggressive towards people if they consider someone problematic🥀)
 
+
+##### i'm also not inspired by other people's skins, if you think my skin looks like someone else's, then it's probably just a coincidence, so don't rush to block me if you think i "stole" your idea, because most likely i haven't even seen you before.
+
 <h2>
 <div id="header" align="center">
   $$\color{#b8bce3}{ ✦ }$$
