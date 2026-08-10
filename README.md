@@ -86,16 +86,28 @@
 <div id="header" align="left">
   
   Evade (roblox)
-  
+  $$\color{#b8bce3}{ if }$$
+  $$\color{#b8bce3}{ you're }$$
+  $$\color{#b8bce3}{ in }$$
+  $$\color{#b8bce3}{ this }$$
+  $$\color{#b8bce3}{ fandom, }$$
+  $$\color{#b8bce3}{ feel }$$
+  $$\color{#b8bce3}{ free }$$
+  $$\color{#b8bce3}{ to }$$
+  $$\color{#b8bce3}{ c+h }$$
+  $$\color{#b8bce3}{ with }$$
+  $$\color{#b8bce3}{ me }$$
+  ###### (but you can also c+h with me, even if i don't know ur fandom)
+ 
   DMC (devil may cry)
 
   The prowler (film 1981)
 
-  resident evil (film 2002)
-
-  AvP (Aliens vs. Predator, game 2010)
+  Resident evil (film 2002)
   
   My bloody valentine (film 2009)
+
+  AvP (Aliens vs. Predator, game 2010)
 
   COD:MW, COD:MWR, COD:MW2, COD:MW2CR, COD:MW3 (Call of Duty: Modern Warfare)
 
