@@ -30,7 +30,7 @@
 
 
 <h4> 
-  $$\color{#b8bce3}{ DNI.list : }$$
+  $$\color{#bc6867}{ DNI.list : }$$
 
 <div id="header" align="left">
   
@@ -44,7 +44,7 @@
 
  ##### racists, homophobes and other idiots like these,
   
- ##### people with strange tendencies... BRO, IF YOU "LOVE" KIDS OR ANIMALS, I'LL THROW A NUKE AT U.  
+ ##### people with strange tendencies... $$\color{#bc6867}{ BRO, }$$ $$\color{#bc6867}{ IF }$$ $$\color{#bc6867}{ YOU }$$ $$\color{#bc6867}{ "LOVE" }$$ $$\color{#bc6867}{ KIDS }$$ $$\color{#bc6867}{ OR }$$ $$\color{#bc6867}{ ANIMALS, }$$ $$\color{#bc6867}{ I'LL }$$ $$\color{#bc6867}{ THROW }$$ $$\color{#bc6867}{ A }$$ $$\color{#790806}{ NUKE }$$ $$\color{#bc6867}{ AT }$$ $$\color{#bc6867}{ U. }$$ 
 
 
  <div id="header" align="right"> <img width="128" height="128" alt="rebelgun" src="https://github.com/user-attachments/assets/b647d985-1a6c-4c59-956c-af1b2f0bd702" />
