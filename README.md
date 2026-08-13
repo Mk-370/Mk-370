@@ -103,7 +103,7 @@
 
   The prowler (film 1981)
 
-  Resident evil (film 2002)
+  Resident evil (mostly movies)
   
   My bloody valentine (film 2009)
 
